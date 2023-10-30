@@ -6,7 +6,7 @@
 
 <hr/>
 
-- ⚡ Fun fact: I heard that lot of technology companies have dota competition and i am down to have a participate. My current rank is: 6100(immortal 4100).
+- ⚡ Fun fact: I heard that lot of technology companies have dota competition and i'am down to have a participate. My current rank is: 6100(immortal 4100).
 
 <hr/>
 
